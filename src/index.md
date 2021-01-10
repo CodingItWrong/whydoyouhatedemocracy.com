@@ -22,3 +22,11 @@ Because of this opposition to democracy, it’s correct to say that much Republi
 - Talk to friends and family members to explain to them the danger of opposing democracy in the above ways.
 - Do not vote to re-elect anyone who has opposed democracy in the above ways.
 - Vote for leaders who support free and fair elections by opposing baseless claims of fraud and opposing gerrymandering.
+
+## References
+
+- [What Trump said to incite the mob](https://talkingpointsmemo.com/news/heres-what-trump-said-right-before-his-supporters-stormed-the-capitol)
+- [10 minute video showing the violence of the mob](https://www.msnbc.com/all-in/watch/chris-99178053752)
+- [List of Republican congresspeople who voted to reject the electoral college results](https://www.theguardian.com/us-news/2021/jan/07/list-republicans-voted-to-reject-election-results)
+- [Trump’s post-insurrection tweets further inciting violence](https://www.cnn.com/2021/01/08/tech/trump-twitter-ban/index.html)
+- [Draft article of impeachment](https://twitter.com/NBCNews/status/1347651887764557826)
