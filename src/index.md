@@ -18,7 +18,7 @@ Because of this opposition to democracy, it’s correct to say that much Republi
 
 ## What can you do?
 
-- Call your representative right now and urge them to support the bill to impeach President Trump
-- Talk to friends and family members to explain to them the danger of opposing democracy in the above ways
-- Do not vote to re-elect anyone who has opposed democracy in the above ways
-- Vote for leaders who support free and fair elections by opposing baseless claims of fraud and opposing gerrymandering
+- Call your representative right now and urge them to support the bill to impeach President Trump. The web site [5 Calls](https://5calls.org/issue/impeach-trump-coup-insurrection) makes calling them easy.
+- Talk to friends and family members to explain to them the danger of opposing democracy in the above ways.
+- Do not vote to re-elect anyone who has opposed democracy in the above ways.
+- Vote for leaders who support free and fair elections by opposing baseless claims of fraud and opposing gerrymandering.
