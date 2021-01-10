@@ -9,7 +9,7 @@ These are all good questions to ask many congresspeople and government leaders r
 **You hate America, freedom, and democracy when you oppose the fundamental operation of democracy.** And Republican leaders have opposed democracy in these ways:
 
 - **Republican leaders undermined faith in the election process** by spreading lies about election validity which never had any evidence, even after they were rejected by all courts.
-- **President Trump and other MAGA leaders caused the disruption of the certification of electoral college votes** by inciting a mob with violent rhetoric and sent it to the Capitol, where it invaded the building, planted pipe bombs, and forced congress to flee for their safety. Five people died in the riot.
+- **President Trump and other MAGA leaders caused the disruption of the certification of electoral college votes** by inciting a mob with violent rhetoric and sent it to the Capitol, where it invaded the building, planted pipe bombs, and forced congress to flee for their safety. At least five people died as a result.
 - **Some Republican congresspeople voted in support of rejecting the electoral college votes** from swing states, even though those electors were legally appointed and the election results were valid and confirmed.
 - **President Trump continues to incite anti-government violence** by refusing to wholly reject the mob and to use language encouraging further insurrection.
 - **Many Republican congresspeople currently do not want any consequences to President Trump** for this behavior that fundamentally undermines democracy, by removing him via the 25th amendment or by impeachment.
